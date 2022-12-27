@@ -43,7 +43,6 @@ https://miraiworks.org/?p=5765
 <br>
 <br>
 <br>
-***
 
 # Thermo-hygrometer (English)
 
